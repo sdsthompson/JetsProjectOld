@@ -1,1 +1,1 @@
-## Jet's Homework Project
+## Jets Homework Project
